@@ -3,7 +3,7 @@ Hope I can learn more here, and I found the people here are very friendly, unlik
 Thank you brother and sister. I am from Taiwan. If you have a chance, you can come to Taiwan and play with me! ^.^ Ya~
 
 Since I don't have an account to sponsor the setting requirements, I have to post this to see if I can increase or decrease the subsidized tuition.
-I also hope that big brothers and big sisters don’t take offense, it’s the most important thing to study in Kansai~
+I also hope that big brothers and big sisters will forgive me, and I am very happy if I am not at all. The most important thing is to study in Kansai~
 
 BTC address:
 
