@@ -1,8 +1,6 @@
+There's been a lot of trouble lately.
+Especially when the economy faces difficult conditions.
+I also don't know how to solve this problem.
+Just keep updating every day to forget your troubles.
 
 
-夢想是不用工作還有錢賺~
-因為我是個大懶人
-有特別的需求會來更新
-當前需要ㄧ個資金來源
-正在開發的項目是加密代幣來包裝實體商品進行網路銷售與國際直銷
-這部分只開發個人實體商品部分不接公司型態經營者
