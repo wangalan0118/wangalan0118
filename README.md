@@ -1,10 +1,12 @@
-Hi! Handsome brothers and beautiful sisters: I joined soon, please tell me where there is a problem or a more perfect place that can be improved. >.<a
-Hope I can learn more here, and I found the people here are very friendly, unlike other places they don't guide me. QvQa
-Thank you brother and sister. I am from Taiwan. If you have a chance, you can come to Taiwan and play with me! ^.^ Ya~
+Hi! Dear brothers and sisters: 
+I've been here for less than a month, please take care of me! 
+If there is a wrong place or a more perfect way to present it >. < 
+I hope to learn from each other, thank you ^. ^ 
+Hope I can learn more here, and I find the people here are very friendly, unlike other places they don't guide me q. q 
+Thank you, brothers and sisters, I am from Taiwan. If you have the opportunity to come to Taiwan to play, you can find me! ^. ^y 
 
-Since I don't have an account to sponsor the setting requirements, I have to post this to see if I can increase or decrease the subsidized tuition.
-I also hope that big brothers and big sisters will forgive me, and I am very happy if I am not at all. The most important thing is to study in Kansai~
+Since I don't have a sponsorship system provided by the bank can charge sponsorship 
+How much can I expect sponsorship to help with my study expenses 
 
-BTC address:
-
-1JVt8wMTMKzsGXLamTxqqvRkfDPWGnLvwk
+BTC address: 
+1JVt8wMTMKzsGXLamTxqqvRkfDPWGnLvwk 
