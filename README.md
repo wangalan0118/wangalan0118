@@ -1,2 +1,3 @@
-此帳戶資料庫皆禁止任何非允許之行為
-僅接受公眾維護
+Hi, looking for a blockchain explorer builder The base block has been built, or built using my developer blockchain API
+
+Those with smart contracts that are released first when the blockchain developed here can be registered first will be given priority to release and subsidize some of the costs before listing
